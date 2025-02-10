@@ -1,4 +1,4 @@
-"# Europe Bevel Gear Jack Market Size, Scope, Forecast to 2031
+# Europe Bevel Gear Jack Market Size, Scope, Forecast to 2031
 
 <Strong> Bevel Gear Jack Market Overview 2025 - 2031</strong>
 
