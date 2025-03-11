@@ -1,4 +1,4 @@
-"# North America Smart Home Technologies Market Growth, Size, Share, Trends, Forecasts to 2031
+# North America Smart Home Technologies Market Growth, Size, Share, Trends, Forecasts to 2031
 
 <strong>Smart Home Technologies Market Research Report 2031</strong>
 
